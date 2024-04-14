@@ -1,1 +1,0 @@
-# Interacao_Humano_Computador_2024
